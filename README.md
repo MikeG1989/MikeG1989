@@ -5,9 +5,13 @@
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ ⠀════ ABOUT ME
 
 🌁 name ₊˚.༄ Michael Grant. 👋😁
+
 🌃 programming languages ₊˚.༄ C++, C#, JavaScript, Python. ✍🦾
+
 🏙 projects im working on ₊˚.༄ None at the moment. 🙂
+
 🌄 open for collaborations ₊˚.༄ Yes! 👍🤑
+
 🌆 contact ₊˚.༄ mikegr@gmail.com 💌💬
 
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
